@@ -6,4 +6,4 @@
 ･ IM NICE talk to me youre cool and awesome and i love sitting with people i think i already said that but whatever  
 ･ i'll probably boop u if im trying to get your attention so if you dont have a tag that you dont want it i'll probably boop you!!  
 
-tldr: im super super nice!!! i think please talk to me i love cookies and candy
+TL;DR: im super super nice!!! i think please talk to me i love cookies and candy
